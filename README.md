@@ -9,4 +9,4 @@
 >
 > 4. Phan Đinh Nhật Minh
 >
-> 5. Nguyễn Nhật Trường
+> 5. Võ Nguyễn Nhật Trường
